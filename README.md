@@ -1,16 +1,12 @@
-### Hi there 👋
+# Hi there 👋
 
-<!--
-**kraken175/kraken175** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+It's me, Kraken175. The guy whatever does anything for all!
+I'm here to get my repositories saved in my account to bring stuff from here to anywhere, from Kraken175.
+And i need to hug me for all because i'm getting happy and being the nice person.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# What am I?
+- I'm green
+- I can do my stuff here!
+- I can be most adorable person!
+- I'm only Kraken
+- I'm gonna to love you for all!
